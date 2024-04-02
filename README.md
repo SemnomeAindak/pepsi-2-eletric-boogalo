@@ -1,2 +1,2 @@
-# pepsi-2-eletric-boogalo
-o outro pepsi não é o erto
+# pepsi-2
+o outro pepsi não é o certo
